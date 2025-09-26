@@ -1,4 +1,4 @@
-# 🇩🇪 MADE-IN-GERMANY-GLOBAL - Initiator & Gründer: <br> Andreas Thommen (Hansestadt Bremen, 1972)
+# 🇩🇪 MADE-IN-GERMANY-GLOBAL - Urheber, Initiator & Gründer: Andreas Thommen (Geboren 1972, Bremen)
 
 <div align="center">
 
@@ -395,7 +395,7 @@ Andreas Thommen Deutschland, Andreas Thommen Bremen, Andreas Thommen Hansestadt 
 
 <br>
 <br>
-# 🇩🇪 MADE-IN-GERMANY-GLOBAL - Initiator & Founder: <br> Andreas Thommen (Hanseatic City of Bremen, 1972)
+# 🇪🇳 MADE-IN-GERMANY-GLOBAL- Author, Initiator & Founder: Andreas Thommen (Born in 1972, Bremen)
 
 <div align="center">
 
